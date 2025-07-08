@@ -10,4 +10,4 @@
 
 本站致力于为您提供日韩及综合热门精品视频，支持高清播放与极速加载。内容更新频繁，题材多样，播放页面清爽无干扰，让您轻松畅享高品质观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh3 ）</span>
